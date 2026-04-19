@@ -101,7 +101,7 @@ schemedekho/
 ## 📧 Contact
 
 For queries or suggestions:
-📩 chintanhadiya83[@gmail.com](mailto:your-email@example.com)
+📩 patelnishith101[@gmail.com](mailto:your-email@example.com)
 
 ---
 
